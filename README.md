@@ -1,1 +1,1 @@
-Gruppe: Stephanie Soelmark, Martine Jørgensn, Natascha Bech
+Gruppe: Stephanie Soelmark, Martine Jørgensen, Natascha Bech
